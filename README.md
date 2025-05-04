@@ -1,0 +1,5 @@
+![fase1](https://github.com/user-attachments/assets/2fbf6c7e-6453-4246-a7f5-ef06723cd9d1)
+![fase5](https://github.com/user-attachments/assets/595f3217-a8b7-4d07-8f16-e57de1e96ac8)
+![fase4](https://github.com/user-attachments/assets/372e12b9-2708-4616-9340-6ec1f63e9226)
+![fase3](https://github.com/user-attachments/assets/d9d6d668-d5c1-4a2d-8e38-72a2be437019)
+![fase2](https://github.com/user-attachments/assets/31747793-75af-481c-8615-d229d06f6792)
